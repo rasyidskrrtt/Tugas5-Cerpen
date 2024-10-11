@@ -1,0 +1,2 @@
+## **1. Pembukaan: Kenalan dengan Si Kancil**  
+Di sebuah hutan yang asri 🌳, hiduplah seekor hewan kecil bernama Kancil. Badannya memang kecil, tapi Kancil terkenal cerdik dan pintar. Ia selalu tahu cara menghindari bahaya dan selalu bisa menyelesaikan masalah dengan akalnya. Setiap hari, Kancil berkeliling hutan untuk bermain dan mencari petualangan baru. Banyak hewan lain yang kagum padanya karena keberaniannya yang tak terbatas.
